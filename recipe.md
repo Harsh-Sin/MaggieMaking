@@ -1,0 +1,1 @@
+First add maggie to water then boil it for 5 min at hgh flame then add maggie masala and serve it after 2 min.
